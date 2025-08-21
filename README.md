@@ -27,7 +27,7 @@ Meu foco é transformar dados brutos em **insights claros e acionáveis**, atrav
 
 ## 🌎 Vamos nos conectar?  
 
-📫 [LinkedIn](https://www.linkedin.com/)  
+📫 [LinkedIn](www.linkedin.com/in/gabriel-costa-de-souza/)  
 📂 [Portfólio (em breve)]  
 
 ---
